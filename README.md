@@ -1,5 +1,9 @@
-## Hi there 👋
+> ✧° "𝘛𝘩𝘦 𝘮𝘰𝘰𝘯 𝘪𝘴 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭, 𝘪𝘴𝘯'𝘵 𝘪𝘵?"
+> > ✧° "𝘠𝘦𝘴. 𝘈𝘯𝘥 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥 𝘪𝘴 𝘨𝘦𝘯𝘵𝘭𝘦"
 
+<img width="1536" height="2148" alt="Untitled46_20250730220732" src="https://github.com/user-attachments/assets/ac05051c-03dc-4c5b-a223-9dff2ae5f87f" />
+
+𝘈𝘳𝘵 𝘣𝘺 𝘣𝘥𝘧647 ✧ 𝑫𝑶 𝑵𝑶𝑻 𝑼𝑺𝑬/𝑹𝑬𝑷𝑶𝑺𝑻
 <!--
 **BDF647/BDF647** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
