@@ -34,7 +34,7 @@
 
 ####  ***`✦ DNI ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎:`***
 
-> *`ʚ Sexism, Pedophillia, Homophobic, Racist (Black/White washer) ɞ`*
+> *`ʚ Sexism, Pedophilia, Homophobic, Racist (Black/White washer) ɞ`*
 
 > *`ʚ Body shamer ɞ`*
 
@@ -44,7 +44,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-####  `✦ 𝘗𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘴𝘵𝘶𝘧𝘧 ₍ᵔ.˛.ᵔ₎:`
+####  ***`✦ 𝘗𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘴𝘵𝘶𝘧𝘧 ₍ᵔ.˛.ᵔ₎:`***
 
 > *`ʚ I love cuddling, so feel free to C+H with me even when I'm sitting with my friend or having DNI/DNIUF/DNIUCF/DNIUID status.ᐟ ɞ`*
 
