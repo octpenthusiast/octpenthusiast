@@ -1,81 +1,75 @@
-## `₊˚⊹ 𝙃𝙞𝙞𝙞 ₍⑅ᐢ..ᐢ₎ 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙢𝙮 𝙨𝙥𝙖𝙘𝙚.ᐟ`
+## ***`₊˚⊹ Hii ₍⑅ᐢ..ᐢ₎ Welcome to my spacee.ᐟ`***
 
 -----
 
-> `✧ "𝘛𝘩𝘦 𝘮𝘰𝘰𝘯 𝘪𝘴 𝘣𝘦𝘢𝘶𝘵𝘪𝘧𝘶𝘭, 𝘪𝘴𝘯'𝘵 𝘪𝘵?"`
->> `✧ "𝘠𝘦𝘴. 𝘈𝘯𝘥 𝘵𝘩𝘦 𝘸𝘪𝘯𝘥 𝘪𝘴 𝘨𝘦𝘯𝘵𝘭𝘦"`
+> ***`✧ "The moon is beautiful, isn't it`***
+>> ***`✧ "Yes. And the wind is gentle"`***
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <img width="1536" height="2148" alt="Untitled46_20250730220732" src="https://github.com/user-attachments/assets/ac05051c-03dc-4c5b-a223-9dff2ae5f87f" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`𝘈𝘳𝘵 𝘣𝘺 𝘣𝘥𝘧647/𝘒𝘰𝘩𝘪 ✧ 𝑫𝑶 𝑵𝑶𝑻 𝑼𝑺𝑬/𝑹𝑬𝑷𝑶𝑺𝑻`
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ***`Art by Kohi/bdf647 ✧ DO NOT USE/REPOST/THIEF`***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 -----
 
-#### `✦ 𝘉𝘠𝘐 ₍ᐢ. ̫.ᐢ₎:`
-> `ʚ 𝘠𝘰𝘶 𝘤𝘢𝘯 𝘦𝘪𝘵𝘩𝘦𝘳 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘋𝘦𝘢𝘧 𝘰𝘳 𝘒𝘰𝘩𝘪 ɞ`
+#### ***`✦ BYI ₍ᐢ. ̫.ᐢ₎:`***
+> *`ʚ You can either call me Kohi/Deaf (most prefered) or any nicknames you have for me ɞ`*
 
-> `ʚ 𝘗𝘢𝘯𝘴𝘦𝘹𝘶𝘢𝘭 ɞ`
+> *`ʚ Pansexual ɞ`*
 
-> `ʚ 𝘝𝘪𝘦𝘵/𝘌𝘯𝘨 𝘰𝘯𝘭𝘺 ɞ`
+> *`ʚ Viet/Eng only ɞ`*
 
-> `ʚ 𝘜𝘯𝘵𝘢𝘣𝘭𝘦 𝘮𝘦𝘯𝘵𝘢𝘭 ɞ`
+> *`ʚ I like true crimes, bunny, drawing and sleeping ᶻᶻᶻ ɞ`*
 
-> `ʚ 𝘐 𝘭𝘪𝘬𝘦 𝘣𝘶𝘯𝘯𝘺, 𝘵𝘳𝘶𝘦 𝘤𝘳𝘪𝘮𝘦, 𝘥𝘳𝘢𝘸𝘪𝘯𝘨 𝘢𝘯𝘥 𝘴𝘭𝘦𝘦𝘱𝘪𝘯𝘨 ᶻᶻᶻ ɞ`
+> *`ʚ Multiple fandoms. Main: BSD, CRK/OBɞ`*
 
-> `ʚ 𝘔𝘶𝘭𝘵𝘪𝘱𝘭𝘦 𝘧𝘢𝘯𝘥𝘰𝘮𝘴 ɞ`
+> *`ʚ ⚠︎ Unstable mental ɞ`*
 
-> `ʚ 𝘔𝘢𝘪𝘯: 𝘉𝘚𝘋, 𝘊𝘙𝘒/𝘖𝘉, 𝘋𝘢𝘯𝘋𝘢𝘋𝘢𝘯, 𝘉𝘭𝘢𝘤𝘬 𝘉𝘶𝘵𝘭𝘦𝘳, 𝘈𝘓𝘕𝘚𝘛 𝘦𝘵𝘤.. ɞ`
+> *`ʚ ⚠︎ I can be very weird/freaky. So if you feel uncomfortable with it, tell me so I can fix it <3 ɞ`*
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-####  `✦ 𝘋𝘕𝘐 ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎:`
+####  ***`✦ DNI ₍ᐢ ›̥̥̥ ༝ ‹̥̥̥ ᐢ₎:`***
 
-> `ʚ 𝘚𝘦𝘹𝘪𝘴𝘮 ɞ`
+> *`ʚ Sexism, Pedophillia, Homophobic, Racist (Black/White washer) ɞ`*
 
-> `ʚ 𝘗𝘦𝘥𝘰𝘱𝘩𝘪𝘭𝘪𝘢 ɞ`
+> *`ʚ Body shamer ɞ`*
 
-> `ʚ 𝘏𝘰𝘮𝘰𝘱𝘩𝘰𝘣𝘪𝘤 ɞ`
+> *`ʚ Disrespect toward others's boundariesvɞ`*
 
-> `ʚ 𝘉𝘰𝘥𝘺 𝘴𝘩𝘢𝘮𝘦𝘳 ɞ`
+> *`ʚ Blindly claiming that everyone is homosexual ɞ`*
 
-> `ʚ 𝘙𝘢𝘤𝘪𝘴𝘵 (𝘉𝘭𝘢𝘤𝘬/𝘞𝘩𝘪𝘵𝘦 𝘸𝘢𝘴𝘩𝘦𝘳) ɞ`
-
-> `ʚ 𝘋𝘪𝘴𝘳𝘦𝘴𝘱𝘦𝘤𝘵𝘧𝘶𝘭 𝘵𝘰𝘸𝘢𝘳𝘥 𝘰𝘵𝘩𝘦𝘳𝘴' 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 ɞ`
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ####  `✦ 𝘗𝘰𝘯𝘺 𝘵𝘰𝘸𝘯 𝘴𝘵𝘶𝘧𝘧 ₍ᵔ.˛.ᵔ₎:`
 
-> `ʚ 𝘐 𝘭𝘰𝘷𝘦 𝘤𝘶𝘥𝘥𝘭𝘪𝘯𝘨, 𝘴𝘰 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘊+𝘏 𝘸𝘪𝘵𝘩 𝘮𝘦 𝘦𝘷𝘦𝘯 𝘸𝘩𝘦𝘯 𝘐'𝘮 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘮𝘺 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 𝘰𝘳 𝘩𝘢𝘷𝘪𝘯𝘨 𝘋𝘕𝘐/𝘋𝘕𝘐𝘜𝘍/𝘋𝘕𝘐𝘜𝘊𝘍/𝘋𝘕𝘐𝘜𝘐𝘋 𝘴𝘵𝘢𝘵𝘶𝘴.ᐟ ɞ`
+> *`ʚ I love cuddling, so feel free to C+H with me even when I'm sitting with my friend or having DNI/DNIUF/DNIUCF/DNIUID status.ᐟ ɞ`*
 
-> `ʚ 𝘐'𝘮 𝘮𝘰𝘴𝘵𝘭𝘺/𝘢𝘭𝘸𝘢𝘺𝘴 𝘢𝘧𝘬/𝘰𝘧𝘧𝘵𝘢𝘣, 𝘴𝘰 𝘪𝘧 𝘐 𝘥𝘰𝘯'𝘵 𝘳𝘦𝘴𝘱𝘰𝘯𝘥 𝘱𝘭𝘻 𝘸2𝘪 𝘸𝘪𝘵𝘩 𝘮𝘦.ᐟ ɞ`
+> *`ʚ Int freely, any kind of interacts is fine.ᐟ But whether I don't respond immediately, w2i with me because I'm usually/always offtab/afk ɞ`*
 
-> `ʚ 𝘐 𝘴𝘱𝘦𝘯𝘵 𝘮𝘺 𝘵𝘪𝘮𝘦𝘴 𝘢𝘯𝘥 𝘦𝘧𝘧𝘰𝘳𝘵𝘴 𝘮𝘢𝘬𝘪𝘯𝘨 𝘮𝘺 𝘴𝘬𝘪𝘯𝘴/𝘤𝘰𝘴𝘱𝘭𝘢𝘺𝘴, 𝘴𝘰 𝘱𝘭𝘦𝘢𝘴𝘦 𝘥𝘰 𝘯𝘰𝘵 𝘤𝘰𝘱𝘺/𝘵𝘢𝘬𝘦 𝘪𝘯𝘴𝘱𝘪𝘳𝘦𝘥 𝘰𝘧 𝘵𝘩𝘦𝘮 ɞ`
+> *`ʚ I spent my time and effort making my skins/cosplay. So DO NOT COPY them please ɞ`*
 
-> `ʚ 𝘚𝘦𝘷𝘦𝘳𝘴: 𝘚𝘢𝘧𝘦#1, 𝘚𝘢𝘧𝘦#2 ɞ`
-
-> `ʚ 𝘈𝘳𝘦𝘢𝘴: 𝘉𝘚𝘋, 𝘊𝘙𝘒/𝘖𝘉, 𝘉𝘦𝘢𝘤𝘩, 𝘉𝘢𝘬𝘦𝘳𝘺, 𝘔𝘢𝘱 𝘤𝘰𝘳𝘯𝘦𝘳𝘴 ɞ` 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-
-----
-
-## `₊˚⊹ 𝘼𝙣𝙙 𝙩𝙝𝙖𝙩'𝙨 𝙖𝙡𝙡.ᐟ 𝙏𝙝𝙖𝙣𝙠 𝙮𝙤𝙪 𝙛𝙤𝙧 𝙨𝙥𝙚𝙣𝙙𝙞𝙣𝙜 𝙩𝙞𝙢𝙚 𝙧𝙚𝙖𝙙𝙞𝙣𝙜 𝙩𝙝𝙞𝙨 𝙗𝙚𝙛𝙤𝙧𝙚 𝙞𝙣𝙩𝙚𝙧𝙖𝙘𝙩 𝙬𝙞𝙩𝙝 𝙢𝙚 <3`
-
-----
+> *`ʚ You can find me in Safe#1 & Safe#2 severs; BSD, CRK/OB, Beaches, Bakery, Map corners areas ɞ`*
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+----
+
+## ***`₊˚⊹ And that's all.ᐟ Thank you for reading this before interact with me<3 `***
+
+----
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 
 <img width="1800" height="657" alt="image" src="https://github.com/user-attachments/assets/1658108d-2566-49e0-9f65-7279ead767b9" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ`𝘈𝘳𝘵 𝘣𝘺 𝘣𝘥𝘧647/𝘒𝘰𝘩𝘪 ✧ 𝑫𝑶 𝑵𝑶𝑻 𝑼𝑺𝑬/𝑹𝑬𝑷𝑶𝑺𝑻`
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ***`Art by Kohi/bdf647 ✧ DO NOT USE/REPOST/THIEF`***
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 <!--
 **BDF647/BDF647** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
