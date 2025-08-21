@@ -24,7 +24,7 @@
 
 > *`ʚ I like true crimes, bunny, drawing and sleeping ᶻᶻᶻ ɞ`*
 
-> *`ʚ Multiple fandoms. Main: BSD, CRK/OBɞ`*
+> *`ʚ Multiple fandoms. Main: BSD, CRK/OB ɞ`*
 
 > *`ʚ ⚠︎ Unstable mental ɞ`*
 
