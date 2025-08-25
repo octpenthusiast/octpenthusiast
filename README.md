@@ -1,4 +1,3 @@
-@oceanaureliaauritac
 ## ***`₊˚⊹ Hii ₍⑅ᐢ..ᐢ₎ Welcome to my spacee.ᐟ`***
 
 -----
